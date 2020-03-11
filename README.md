@@ -15,4 +15,4 @@ Send you my love on a wire
 Lift you up, every time, everyone, ooh, pulls away, ooh
 It's a mechanical bull, the number one
 You'll take a ride from anyone
-Everyone wants a ride, pulls away, ooh, from youPpu
+Everyone wants a ride, pulls away, ooh, from you
